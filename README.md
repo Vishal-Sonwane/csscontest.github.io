@@ -1,1 +1,0 @@
-# csscontest.github.io
